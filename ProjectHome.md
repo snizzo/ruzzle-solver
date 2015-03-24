@@ -1,0 +1,1 @@
+Can't you win at ruzzle? Use this simple script! :D
